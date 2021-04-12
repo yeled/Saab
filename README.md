@@ -66,7 +66,7 @@ https://www.reddit.com/r/saab/comments/2gcgp5/sabbit_car_buying_guide/
  - https://www.wpdusa.com/
  - https://shop.speedparts.se/
  
-### Mechanics
+### Mechanics and Specialists
 #### New York Area
  - Swedish Underground Auto - 814 Glenmore Ave, Brooklyn, NY 11208 - (718) 622-3838
  - Quality Auto Services - 516 W 39th St, New York, NY 10018 - (212) 244-4420 - qualityautoservicesnyc.com
